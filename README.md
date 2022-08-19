@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @micha1503
-- 👀 I’m interested in the music, i'm player bass
+- 👀 I’m interested in the music, i'm player bass and i'm programmer
 - 🌱 I’m currently learning of the life 
 - 💞️ I’m looking to collaborate on create 2d games
 - 📫 How to reach me Mail: maicolbosiga@gmail.com 
